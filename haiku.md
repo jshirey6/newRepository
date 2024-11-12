@@ -5,8 +5,7 @@ this is the last line
 
 
 
-
-
-
-
+Treasure maps unfold,
+Courage gleams in every fight,
+Pirates of the heart.
 Goodbye!
